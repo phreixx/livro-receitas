@@ -1,6 +1,6 @@
 # Lasanha Bolonhesa
 
-## Ingredientes
+## Ingredientes:
 
 - 1 cebola pequena;
 - 3 dentes de alho triturados ou picados;
@@ -16,7 +16,7 @@
 - 350g de queijo Muçarela;
 - Queijo parmesão a gosto.
 
-## Modo de Preparo
+## Modo de Preparo:
 
 * **Comece preparando o molho:**
   Refogue a cebola e o alho em fio de azeite, junte e a carne moída e quando o sangue “secar” acrescente o orégano, sal e pimenta-do-reino (a gosto). Adicione o molho de tomate, a água e o cheiro-verde. Misture só para aquecer e já pode tirar do fogo. O molho tem que ser mais ralinho mesmo porque ele vai cozinhar a massa no forno.
